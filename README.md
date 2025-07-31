@@ -9,4 +9,4 @@ Outside of code and Figma, you’ll find me listening to music, playing videogam
 #### Fun Facts:
 
 * I love vegetables.
-* Demon Slayer is my favorite anime.
+* Spiderman is my hero.
